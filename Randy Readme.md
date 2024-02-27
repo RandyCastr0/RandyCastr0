@@ -21,8 +21,9 @@ My goal is to successfully complete this program and secure a fulfilling career 
 
 ## Family and Pets
  In my household it is just my wife and our cat name Nori
+![Cute Grey Cat](https://facts.net/wp-content/uploads/2023/05/cute-grey-cat-730x487.jpeg)
 
-![alt text](../IMG_0786.jpg)
+
 
 
 ## What I like to do in my free time?
